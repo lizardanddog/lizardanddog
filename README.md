@@ -3,7 +3,7 @@ For tutorials, and coding tips, be sure to follow us at:
 
 www.lizardanddog.blog
 
-or on our main website:
+Or on our main website:
 
 www.lizardanddog.com
 
